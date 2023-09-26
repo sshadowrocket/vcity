@@ -1,6 +1,6 @@
 # vcity 万城网络专线机场最新官网+优惠码
 
-万城网络机场官网：[https://shuttle.vcity-in.com](https://shuttle.vcity-in.com/#/register?code=QVGTq85j)
+万城网络机场官网：[vc-on.com](https://portal.vc-on.com/#/register?code=QVGTq85j)
 
 ## 万城网络怎么样？小众 Shadowsocks 专线机场
 
@@ -10,12 +10,20 @@
 
 万城专线付款方式支持 支付宝 和 USDT 加密货币等。
 
-## vcity 万城网络专线机场最优惠码
+## vcity 万城网络专线机场最新优惠码
 
 万城网络最新优惠码：
 
-➜75折码：[75vcity](https://shuttle.vcity-in.com/#/register?code=QVGTq85j) 适用：年付及以上；
+➜75折码：[75vcity](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：年付及以上；
 
-➜85折码：[85vcity](https://shuttle.vcity-in.com/#/register?code=QVGTq85j) 适用：月付、季付、半年付；
+➜85折码：[85vcity](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：月付、季付、半年付；
 
-➜9折码：[90vcity](https://shuttle.vcity-in.com/#/register?code=QVGTq85j) 适用：“计量包”套餐；
+➜9折码：[90vcity](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：“计量包”套餐；
+
+## vcity 万城网络专线机场国庆节优惠码
+
+➜75折码：[75holiday](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：年付及以上；
+
+➜85折码：[85holiday](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：月付、季付、半年付；
+
+➜9折码：[90holiday](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：“计量包”套餐；
