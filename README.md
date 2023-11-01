@@ -1,6 +1,6 @@
 # vcity 万城网络专线机场最新官网+优惠码
 
-万城网络机场官网：[vcity-on.com](https://portal.vcity-co.com/#/register?code=QVGTq85j)
+万城网络机场官网：[vcity-co.com](https://portal.vcity-co.com/#/register?code=QVGTq85j)
 
 ## 万城网络怎么样？小众 Shadowsocks 专线机场
 
