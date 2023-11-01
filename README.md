@@ -10,7 +10,7 @@
 
 万城网络机场节点订阅支持 Clash、Shadowrocket、Surge、Quantumult X、Stash 等常用 app。支持使用支付宝和 USDT 加密货币付款。
 
-[![万城专线机场](vcity_uxtt_20231101_143930.png)](https://xuv.cc/wanc)
+[![万城专线机场](vcity_uxtt_20231101_143930.png)](https://xuv.cc/out/wanc)
 
 ## vcity 万城网络专线机场双十一优惠码
 
