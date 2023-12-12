@@ -14,10 +14,4 @@
 
 ## vcity 万城网络专线机场双十二优惠码
 
-万城网络双十一最新优惠码：
-
-➜80折码：[75vcity](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：年付及以上；
-
-➜85折码：[85vcity](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：月付、季付、半年付；
-
-➜9折码：[9527](https://centre.vcsite1.com/#/register?code=QVGTq85j) 适用：“计量包”套餐；
+专属9折优惠码：[9527](https://centre.vcsite1.com/#/register?code=QVGTq85j) 
