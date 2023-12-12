@@ -1,6 +1,6 @@
 # vcity 万城网络专线机场最新官网+优惠码
 
-万城网络机场官网：[vcity-co.com](https://portal.vcity-co.com/#/register?code=QVGTq85j)
+万城网络机场官网：[https://centre.vcsite1.com](https://centre.vcsite1.com/#/register?code=QVGTq85j)
 
 ## 万城网络怎么样？小众 Shadowsocks 专线机场
 
@@ -12,7 +12,7 @@
 
 [![万城专线机场](vcity_uxtt_20231101_143930.png)](https://xuv.cc/out/wanc)
 
-## vcity 万城网络专线机场双十一优惠码
+## vcity 万城网络专线机场双十二优惠码
 
 万城网络双十一最新优惠码：
 
@@ -20,4 +20,4 @@
 
 ➜85折码：[85vcity](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：月付、季付、半年付；
 
-➜9折码：[90vcity](https://portal.vc-on.com/#/register?code=QVGTq85j) 适用：“计量包”套餐；
+➜9折码：[9527](https://centre.vcsite1.com/#/register?code=QVGTq85j) 适用：“计量包”套餐；
