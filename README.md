@@ -1,6 +1,6 @@
 # vcity 万城网络专线机场最新官网+优惠码
 
-万城网络机场官网：[https://centre.vcsite1.com](https://centre.vcsite1.com/#/register?code=QVGTq85j)
+万城网络机场官网：[https://portal.vcity-ca.com/](https://portal.vcity-ca.com/#/register?code=QVGTq85j)
 
 ## 万城网络怎么样？小众 Shadowsocks 专线机场
 
@@ -14,4 +14,4 @@
 
 ## vcity 万城网络专线机场双十二优惠码
 
-专属9折优惠码：[9527](https://centre.vcsite1.com/#/register?code=QVGTq85j) 
+专属9折优惠码：[9527](https://xuv.cc/out/wanc) 
